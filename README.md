@@ -1,1 +1,1 @@
-<a href="https://jeshjangid.github.io/zoom_restaurant_temp/">Preview</a>
+<a href="https://abhishekbhadoriya82.github.io/zoom-restaurant/">Preview</a>
